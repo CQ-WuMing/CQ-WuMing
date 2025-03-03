@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CQ-WuMing
+- 👋 Hi, I’m @CQ-WuMing,and I'm working in BOSCH now as an intern
 - 👀 I’m interested in finding a great job in Shanghai
 - 📫 How to reach me sunnypersonwu@gmail.com
 - 😄 Pronouns: ...
